@@ -20,4 +20,6 @@
 - [🕵️‍♂️・Credits](#forkedfrom)
 - [💼・Term](#terms)
 
-!https://cdn.discordapp.com/attachments/1113554151700443218/1113854178167636070/IMG_5352.jpg
+(https://cdn.discordapp.com/attachments/1113554151700443218/1113854178167636070/IMG_5352.jpg)
+(https://cdn.discordapp.com/attachments/1113554151700443218/1113895476111081532/IMG_5353.jpg)
+(https://cdn.discordapp.com/attachments/1113554151700443218/1113895475221905408/IMG_5356.jpg)
