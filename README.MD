@@ -9,14 +9,6 @@
 
 ##### [Youtube](https://youtu.be/NRbmsWdpRR0)
 
-##### [🔱 More](https://t.me/+WvJrz6yv5AxkYjY8)
-
-
-
-<h2 align="center">
- https://t.me/+WvJrz6yv5AxkYjY8
-</h2>
-
 
 ## <a id="content"></a>🌐 〢 Content
 - [🌌・Telegram](https://t.me/+WvJrz6yv5AxkYjY8)
